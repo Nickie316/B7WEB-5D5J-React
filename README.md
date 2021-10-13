@@ -1,4 +1,4 @@
-# Evento 5 Dias, 5 Projetos, edição React, desenvolvido pela *B7WEB*
+# Evento 5 Dias, 5 Projetos, edição React, desenvolvido pela *B7WEB 🧙‍♂️*
 
 <!--ts-->
 
